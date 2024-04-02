@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning devops
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me awsrekhapatil
+- 📫 How to reach me awsrekhapatil@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
